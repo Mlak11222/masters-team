@@ -1,1 +1,1 @@
-# mastes-team
+# masters-team
